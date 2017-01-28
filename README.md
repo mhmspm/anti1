@@ -1,2 +1,2 @@
-تهیه و ساخته شده توسط کانال ترفندلند telegram.me/tarfandland
+تهیه وشده توسط کانال ترفندلند telegram.me/tarfandland
 
